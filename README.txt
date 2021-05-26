@@ -1,1 +1,1 @@
-Personal Website to learn more about me and my portfolio
+Personal Website where you can learn more about me and my portfolio
